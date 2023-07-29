@@ -1,0 +1,2 @@
+## Milo
+Milo is my sweet baby boy, but he is also an asshole. He loves to go outside, but is frustrated that we will only let him out on a harness and leash. He thinks he is a brave boy, but anytime he hears a noise he comes running to mommy for reassurance.  
